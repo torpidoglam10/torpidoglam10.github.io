@@ -1,1 +1,0 @@
-# torpidoglam10.github.io
